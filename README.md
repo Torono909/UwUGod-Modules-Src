@@ -1,2 +1,3 @@
 # UwUGod-Modules-Src
-shit kami blue paste
+feel free to skid :)
+(NOTE: shit kami paste)
