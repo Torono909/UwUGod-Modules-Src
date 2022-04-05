@@ -2,5 +2,5 @@
 feel free to skid :)
 (NOTE: shit kami paste)
 # Credits
-HyperLethal: Giving Da Jar OFC<br>
-____yonkie____: info abt UWUGOD
+HyperLethal: giving **UNCHECKED** jar<br>
+____yonkie____: giving **CHECKED** jar and giving info about the client
