@@ -4,3 +4,4 @@ feel free to skid :)
 # Credits
 HyperLethal: giving **UNCHECKED** jar<br>
 ____yonkie____: giving **CHECKED** jar and giving info about the client
+____My Stupid Ass____: deobfing and decompiling src
